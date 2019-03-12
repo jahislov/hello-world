@@ -5,3 +5,4 @@ I like sports, soccer a big Chelsea FC and Carlton FC fan  I run almost everyday
 I've been so fascinated with IT for a very long time, always dream of being an IT expert as am a very practical person who always wonder how things work and function and the brain behind those cool gadgets/apps. security is my passion
 Being given the opportunity to study IT was a dream and to be enrolled at RMIT definetly tops it all, I can say happiest day for me. 
 My goal is to be part of the new digital world and make a meaningful tangible contribution to the community and the world
+I intend to achieve my goals
